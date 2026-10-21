@@ -73,7 +73,7 @@ Me caracterizo por ser una persona organizada, responsable, adaptable y orientad
 ## 📫 Contacto
 
 - 📍 Pachacámac - Manchay, Lima, Perú  
-- 📧 Camilabr0502@gmail.com  
+- 📧 camilabr0502@gmail.com  
 
 ---
 
